@@ -1,0 +1,1 @@
+# Gerador-de-Sensi-iPhone-8
